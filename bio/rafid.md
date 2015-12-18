@@ -1,4 +1,5 @@
 ## Biodata
+*Nama : Rafid Fikri
 
 * Asal Daerah : Pelesiran
 
